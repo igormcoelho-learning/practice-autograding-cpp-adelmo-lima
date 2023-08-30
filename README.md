@@ -9,7 +9,7 @@ If you want to practice this activity, just follow this link: https://classroom.
 
 ## Full-Name-Of-Student
 
-## Adelmo Bandeira de Lima Junio
+## Adelmo Bandeira de Lima Junior
 
 ## Problem Description
 
